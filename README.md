@@ -4,7 +4,7 @@
 
 I get a lot of questions by email. This way anyone can read the answer!
 
-Anything means anything. Personal questions. Work. Life. Code. Whatever.
+Anything means anything. Work. Life. Code. Blogging. Whatever.
 
 > You can ask anything but I might choose not to reply if I don't feel like 😛
 
