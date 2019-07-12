@@ -15,3 +15,7 @@ Anything means anything. Work. Life. Code. Blogging. Whatever.
 - Please don't ask me for help on your programming problems or tasks. Support questions are better asked on Stack Overflow
 - Be civil and polite.
 
+
+There area some way to send you $$$? 
+I would like to send you a little support because I want you to keep doing excellent tutorials
+
